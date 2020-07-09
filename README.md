@@ -1,5 +1,5 @@
 ### Hi there 👋
-This here is an "**About me**".
+✨This here is an "**About me**".✨
 <!--
 **ParvathiRajpal/ParvathiRajpal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -12,5 +12,5 @@ Here are some ideas to get you started:-->
 - ⚽ I love playing: Sudoku♥️,Chess♟️, Cricket🏏,Handball and card games🃏.
      </br>**FYI**->I suck at arm wrestling(lost miserably with most people I'd hand-wrestled with **sigh*) and basketball.
 - 😎 Interests: Reading random stuff📖,Cooking👩‍🍳,Eating🍜,Watching sitcom📺(not necessarily this,I switch b/w different genres but prefer this more than anything else)
-- ⚡ Fun fact: I liketh to both'r mine own broth'r(XD).</br>👩🏻‍🔬Like exploring and experimenting with new stuff.</br>🤹🏻‍♀️Jack of all trades,master of none.
+- ⚡ Fun fact: I liketh to both'r mine own broth'r(Rofl).</br>👩🏻‍🔬Like exploring and experimenting with new stuff.</br>🤹🏻‍♀️Jack of all trades,master of none.
 
