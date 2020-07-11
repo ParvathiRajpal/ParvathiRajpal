@@ -11,7 +11,7 @@ Here are some ideas to get you started:-->
 - 😄 Pronouns: she/her♀️</br></br>
 - ⚽ I love playing: </br>Sudoku♥️,Chess♟️, Cricket🏏,Handball and card games🃏.
      </br>**FYI**->I suck at arm wrestling(AFAIR,lost miserably with most people I'd arm-wrestled with **sigh*) and basketball.</br></br>
-- 😎 Interests: </br>Reading random stuff📖,Cooking👩‍🍳,Eating🍜,Watching sitcom📺(not necessarily this,I switch b/w different genres but prefer this more than anything else)</br></br>
+- 😎 Interests: </br>Reading random stuff📖,Cooking👩‍🍳,Eating🍜,Watching sitcom📺</br></br>
 - ⚡ Fun fact: 
   </br> I like to both'r my broth'r😀</br>I am a night 🦉</br>Don't mind using light mode while coding.
  </br>👩🏻‍🔬Like exploring and experimenting with new stuff.</br>🤹🏻‍♀️Jack of all trades,master of none.
